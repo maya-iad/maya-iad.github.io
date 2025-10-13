@@ -1,1 +1,0 @@
-Maya Anjur-Dietrich website
